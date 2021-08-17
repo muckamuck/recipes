@@ -26,5 +26,5 @@
 * Put the thing into the oven
 * Cook until 160 F internal temp.
 
-#### How Sam Dit this:
+#### How Sam Did this:
 [![YouTube](http://img.youtube.com/vi/eetig_xvnn4/0.jpg)](http://www.youtube.com/watch?v=eetig_xvnn4)
