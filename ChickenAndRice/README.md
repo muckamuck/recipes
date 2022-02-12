@@ -6,7 +6,7 @@
 * 3 1/2 cups water with salt and pepper
 
 #### Cook it:
-1. Brown chicken bird parts medium / high heat
+1. Brown chicken bird parts on medium / high heat
 2. Into the crock pot:
    * water
    * rice
