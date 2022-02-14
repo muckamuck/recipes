@@ -1,7 +1,7 @@
 ## Crock Pot Chicken and Rice:
 #### Ingredients:
 * 3 or 4 chicken breasts
-* bag of frozen vegetables
+* 1/2 bag of frozen vegetables
 * 2 cups rice
 * 3 1/2 cups water with salt and pepper
 
