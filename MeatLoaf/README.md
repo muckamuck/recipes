@@ -6,7 +6,7 @@
 * 0.5 medium onion chopped
 * 1 packet of fajita seasoning for 2 lbs of meat
 * 1 "tube" of Ritz crackers smashed into crumbs
-* 1 egg
+* 2 eggs
 
 #### Prepare:
 * Beef into mixing bowl
@@ -17,7 +17,7 @@
 * Half the onion on top of sausage
 * Half the fajita seasoning packet on top of sausage
 * Half the crackers on top of sausage
-* Egg on top of the sausage
+* Eggs on top of the sausage
 * Mix all that stuff together but do not overwork it, mix with your hands.
 * On cookie sheet with parchment paper form the thing into a loaf
 
