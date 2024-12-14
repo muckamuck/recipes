@@ -1,6 +1,3 @@
-
-Apologies for the oversight; here's a concise recipe for making a small batch of lasagna, which should serve about 2-4 people depending on portion size:
-
 #### Ingredients:
 * Lasagna Noodles: 6-8 sheets (depending on your dish size)
 * Meat Sauce:
@@ -43,10 +40,21 @@ Apologies for the oversight; here's a concise recipe for making a small batch of
 * Serve: Cut into portions and serve, perhaps with a side salad or bread.
 
 #### Notes:
-No-boil noodles can be used; adjust liquid content accordingly.
+* No-boil noodles can be used; adjust liquid content accordingly.
+* You can add spinach or other veggies to the cheese mixture for variety.
+* If using cottage cheese instead of ricotta, blend it for a smoother texture.
+* This small batch should give you the lasagna experience without an overwhelming amount of leftovers. Enjoy!
 
-You can add spinach or other veggies to the cheese mixture for variety.
+---
 
-If using cottage cheese instead of ricotta, blend it for a smoother texture.
+#### Shopping List:
+* Lasagna Noodles: 1 small package (you'll use about 6-8 sheets)
+* Ground Beef or Italian Sausage: 1/2 lb
+* Tomato Sauce or Crushed Tomatoes: 1 small can or jar (about 1 cup needed)
+* Onion: 1 small
+* Garlic: 1 clove (or a small amount if buying pre-minced)
+* Ricotta Cheese: 1 small tub (about 1 cup)
+* Mozzarella Cheese: 1 small package, shredded (about 3/4 cup in total)
+* Parmesan Cheese: Small amount to grate (about 1/4 cup)
+* Egg: 1 large
 
-This small batch should give you the lasagna experience without an overwhelming amount of leftovers. Enjoy!
